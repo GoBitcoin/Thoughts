@@ -1,0 +1,1 @@
+This is where Kevin && Joey jot down cryptoThoughts
